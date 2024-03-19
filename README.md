@@ -1,1 +1,1 @@
-# Post-Internet-Art
+# Post-Internet Art
